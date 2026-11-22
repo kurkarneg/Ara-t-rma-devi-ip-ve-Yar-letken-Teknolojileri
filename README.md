@@ -1,0 +1,1 @@
+# Ara-t-rma-devi-ip-ve-Yar-letken-Teknolojileri
